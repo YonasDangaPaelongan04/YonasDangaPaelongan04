@@ -1,5 +1,5 @@
 # 💫 About Me:
-hello, my name is Yonas Danga Paelongan, I am studying at Amikom University, Yogyakarta, majoring in Informatics Engineering class of 2019
+hello, my name is Yonas Danga Paelongan, I am Fresh Graduate at Amikom University, Yogyakarta, majoring in Informatics class of 2019
 
 
 ## 🌐 Socials:
